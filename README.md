@@ -1,1 +1,1 @@
-Silent Ghost Discord Server: https://discord.gg/ZZr5JTtuFG
+A script for Drinving empire game on roblox 0% UNC
